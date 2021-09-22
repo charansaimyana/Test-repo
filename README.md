@@ -2,6 +2,6 @@
 
 test
 
-test three
+test main
 
 new test
