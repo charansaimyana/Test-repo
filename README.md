@@ -18,7 +18,7 @@ different to the merry\_go\_round.
 
 kdhfbvkshb<br>jshdbckhsb
 
-1.sjdnc
-2.ksjnvl
-3.ksjfnvks
-6.ksjdbvk
+1. sjdnc
+2. ksjnvl
+3. ksjfnvks
+6. ksjdbvk
